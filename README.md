@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/3458bb94-c935-4092-9a9f-06d3e1d8c600)
+![image](https://github.com/user-attachments/assets/06c0b284-db22-4815-b420-f2ead6488838)
 
 
 ## Used Technology:
